@@ -3,7 +3,7 @@
 
 Ghost hunting can be a great hobby to get into! Ghost hunting can seem intimidating at first, but it can be very enjoyable if you like history or like being scared. Professional ghost hunters often love looking up the history of the locations they hunt at because it tells the story of what happened all those years ago to make that place become haunted. The adrenaline rush is always a plus, which is bound to happen when roaming through dark hallways of creepy buildings. 
 
-This short how-to is for the beginnig ghost hunter, those just starting out and wanting to learn the basics before going on their first hunt. Beginning the art of ghost hunting is no small feat. It takes a lot of practice to get to the level or the professionals you see on TV, but with a little patience, you can rise to the professional level before you know it! In this how-to, we will cover what you will need, how to choose a location, why observations on ghost hunts are important, and why having fun is important while on a ghost hunt! 
+This short how-to is for the beginning ghost hunter, those just starting out and wanting to learn the basics before going on their first hunt. Beginning the art of ghost hunting is no small feat. It takes a lot of practice to get to the level or the professionals you see on TV, but with a little patience, you can rise to the professional level before you know it! In this how-to, we will cover what you will need, how to choose a location, why observations on ghost hunts are important, and why having fun is important while on a ghost hunt! 
 
 ### Step 1: Preparation
 
