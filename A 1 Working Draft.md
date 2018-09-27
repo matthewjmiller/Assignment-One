@@ -45,3 +45,10 @@ A) The most common attempt to put a spirit/ghost to rest is to dig up its bones 
 
 Q) How can you trap a ghost if you so desire?
 A) There are a lot of different methods. 
+[Method Option 1](https://www.youtube.com/watch?v=giCM2Bmdnbo)
+[Method Option 2](https://www.youtube.com/watch?v=M5DU8_WhwEo)
+[Method Option 3](https://www.linkedin.com/pulse/paranormal-investigators-trap-ghost-inside-devils-toybox-tilford)
+There are even more, but these are 3 that are kind of cool! Put into Google search if you're curious about more methods to trap ghosts/spirits, because there are many, many options out there! 
+
+Q) Is it possible to be possessed by a ghost?
+A) It is rare, but it is possible. There are very few reported cases of possible ghost possessions. If you become a hardcore ghost hunter and are worried about being possessed, get this tattoo on your chest. It is an anti-possession symbol and will prevent any ghosts or other spirits from possessing you. 
