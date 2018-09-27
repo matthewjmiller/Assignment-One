@@ -39,12 +39,15 @@ Ghost hunting is a skill and a hobby. Grab a flashlight and a friend and hit tha
 ### FAQ's
 
 Q) How do you find an EMF detector?
+
 A) Search around. Some ghost hunting websites sell EMF's, or you can go to Amazon or Ebay. If all else fails, make your own with [these easy steps](https://sciencing.com/build-emf-detector-8491207.html)
 
 Q) How can you put a spirit/ghost to rest?
+
 A) The most common attempt to put a spirit/ghost to rest is to dig up its bones and salt and burn them. This is easily done with a shovel, headlights, and a lot of time. 
 
 Q) How can you trap a ghost if you so desire?
+
 A) There are a lot of different methods. 
 [Method Option 1](https://www.youtube.com/watch?v=giCM2Bmdnbo)
 [Method Option 2](https://www.youtube.com/watch?v=M5DU8_WhwEo)
@@ -52,9 +55,11 @@ A) There are a lot of different methods.
 There are even more, but these are 3 that are kind of cool! Put into Google search if you're curious about more methods to trap ghosts/spirits, because there are many, many options out there! 
 
 Q) Is it possible to be possessed by a ghost?
+
 A) It is rare, but it is possible. There are very few reported cases of possible ghost possessions. If you become a hardcore ghost hunter and are worried about being possessed, get this tattoo on your chest. It is an anti-possession symbol and will prevent any ghosts or other spirits from possessing you. 
 
 ![Anti-Possession Symbol](https://github.com/abbyfincher/Class-Assignments/blob/master/flat%2C550x550%2C075%2Cf.u3.jpg)
 
 Q) Who do I get in contact with for further insight and advice?
+
 A) Ghostbusters or Sam and Dean Winchester are always available to help. Bobby Singer is also an amazing resource. Google them. 
