@@ -13,8 +13,9 @@ Preparation is key in any situation, but it is especially important when one wis
 5) First Aid Kit
 6) Cell Phone
 7) Something to tell temperature
+
 Bringing a camera will help you capture images of ghosts in photographs or video recordings. It is always interesting to see what you've "caught" when scrolling through the images at a later date or even later that day. A tape recorder could capture ghostly voices that may be impercetible to the human ear. Participating in a Q and A session with your potential ghost can reveal some awesome information. First, it lets you know if you have actually encountered a ghost. Second, asking questions helps you to "get to know" the ghost that is in the room with you. This could help you know its name and possibly what its life was like when it was a human. Ghostly voices are sometimes difficult to decipher, but with some practice and training, you could be one of the experts in no time!
-Bringing a first aid kit is important, especially if searching through warn down buildings that have rusty nails and possible tripping hazards. Any cut big enough to warrant immmediate car can be primarily treated with a first aid kit, but if that cut is more of gash, that cell phone is important. It can help you call 911 in an emergency or a friend if you need a quick getaway and your car will not start because of that vengeful spirit possessing the engine. 
+Bringing a first aid kit is important, especially if searching through warn down buildings that have rusty nails and possible tripping hazards. Any cut big enough to warrant immmediate care can be primarily treated with a first aid kit, but if that cut is more of gash, that cell phone is important. It can help you call 911 in an emergency or a friend if you need a quick getaway and your car will not start because of that vengeful spirit possessing the engine. 
 We will discuss the thermometer, pen and paper, and use of a laptop in a later section.
 
 ### Step 2: Where To?
