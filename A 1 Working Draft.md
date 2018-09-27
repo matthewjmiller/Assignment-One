@@ -55,3 +55,5 @@ A) It is rare, but it is possible. There are very few reported cases of possible
 
 ![Anti-Possession Symbol](https://github.com/abbyfincher/Class-Assignments/blob/master/flat%2C550x550%2C075%2Cf.u3.jpg)
 
+Q) Who do I get in contact with for further insight and advice?
+A) Ghostbusters or Sam and Dean Winchester are always available to help. Bobby Singer is also an amazing resource. Google them. 
