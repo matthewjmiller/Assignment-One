@@ -1,7 +1,9 @@
 # Ghost Hunting For The Beginner
 ## A step by step guide of how to begin ghost hunting
 
-Ghost hunting can be a great hobby to get into! It can be enjoyable to be scared out of your wits and to get an adrenaline rush from the creepy and sometimes chaotic things that can happen while ghost hunting. Many professional ghost hunters enjoy hunting for the history of the places they visit and the story of those who may have died and become the ghosts that are now haunting from the beyond. The following steps will present a short introduction in what is needed to begin hunting for the paranormal, how to stay safe, and how to have fun when hunting for your first ghosts! 
+Ghost hunting can be a great hobby to get into! Ghost hunting can seem intimidating at first, but it can be very enjoyable if you like history or like being scared. Professional ghost hunters often love looking up the history of the locations they hunt at because it tells the story of what happened all those years ago to make that place become haunted. The adrenaline rush is always a plus, which is bound to happen when roaming through dark hallways of creepy buildings. 
+
+This short how-to is for the beginnig ghost hunter, those just starting out and wanting to learn the basics before going on their first hunt. Beginning the art of ghost hunting is no small feat. It takes a lot of practice to get to the level or the professionals you see on TV, but with a little patience, you can rise to the professional level before you know it! In this how-to, we will cover what you will need, how to choose a location, why observations on ghost hunts are important, and why having fun is important while on a ghost hunt! 
 
 ### Step 1: Preparation
 
