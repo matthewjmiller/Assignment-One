@@ -1,5 +1,8 @@
 # Ghost Hunting For The Beginner
+
 ## A step by step guide of how to begin ghost hunting
+
+*By: Abby Fincher
 
 Ghost hunting can be a great hobby to get into! Ghost hunting can seem intimidating at first, but it can be very enjoyable if you like history or like being scared. Professional ghost hunters often love looking up the history of the locations they hunt at because it tells the story of what happened all those years ago to make that place become haunted. The adrenaline rush is always a plus, which is bound to happen when roaming through dark hallways of creepy buildings. 
 
