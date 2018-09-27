@@ -12,9 +12,10 @@ Preparation is key in any situation, but it is especially important when one wis
 4) Laptop
 5) First Aid Kit
 6) Cell Phone
+7) Something to tell temperature
 Bringing a camera will help you capture images of ghosts in photographs or video recordings. It is always interesting to see what you've "caught" when scrolling through the images at a later date or even later that day. A tape recorder could capture ghostly voices that may be impercetible to the human ear. Participating in a Q and A session with your potential ghost can reveal some awesome information. First, it lets you know if you have actually encountered a ghost. Second, asking questions helps you to "get to know" the ghost that is in the room with you. This could help you know its name and possibly what its life was like when it was a human. Ghostly voices are sometimes difficult to decipher, but with some practice and training, you could be one of the experts in no time!
 Bringing a first aid kit is important, especially if searching through warn down buildings that have rusty nails and possible tripping hazards. Any cut big enough to warrant immmediate car can be primarily treated with a first aid kit, but if that cut is more of gash, that cell phone is important. It can help you call 911 in an emergency or a friend if you need a quick getaway and your car will not start because of that vengeful spirit possessing the engine. 
-We will discuss pen and paper and the use of a laptop in a later section.
+We will discuss the thermometer, pen and paper, and use of a laptop in a later section.
 
 ### Step 2: Where To?
 
@@ -23,14 +24,24 @@ Looking up sites of possible paranormal activity is important when wondering whe
 
 ### Step 3: Observations
 
-Observations could be anything from a curtain blowing in a windless window or that ominous voice whispering in your ear as you walk through a hallway. Do not discount anything, and do not leave anything out. The smallest occurence could be significant. Recording your observations for future ghost hunts is key. This is where that paper and pencil come in! Recording anything you see on paper is a great way to recall things that a video camera may not have picked up. If you type faster than you can write with pencil and paper, bring that along and record anything you see. Knowing what you've seen helps you in expectations for future hunts and future encounters.
+Observations could be anything from a curtain blowing in a windless window or that ominous voice whispering in your ear as you walk through a hallway. Do not discount anything, and do not leave anything out. The smallest occurence could be significant. Recording your observations for future ghost hunts is key. This is where that paper and pencil come in! Recording anything you see on paper is a great way to recall things that a video camera may not have picked up. If you type faster than you can write with pencil and paper, bring that along and record anything you see. 
+There are certain meters ghost hunters use to help detect and observe ghosts. The most common one is something called an EMF detector. EMF stands for Electromagnetic Field. Ghosts emit an electromagnetic field, and EMF detectors, well, detect this field, and the detector will sound an alarm that resembles the sound of radio waves when something, like that ghost you're hunting, sets it off. 
+The temperature around you is a great indicator of whether there is a ghost around you. If there is a drop in air temperature, a ghost could potentially be using the heat energy from the room to try and materiaize (or manifest). This often leaves a cold spot and can indicate if a spirit is present. Carrying a digital thermometer could be incredibly helpful in determining the presence of a ghost. Using an EMF reader and thermometer together is a killer combination in searching for your ghost. 
+Observations, knowing what you've seen, heard, and felt via cold zones helps you in expectations for future hunts and future encounters. 
 
-### Step 4: Trapping a Ghost
-
-Yes, I said trapping a ghost. It can be done...in theory. One very common method in the attempt to capture a ghost is 
-
-### Step : Have Fun!
+### Step 4: Have Fun!
 
 Don't want to go alone? (I wouldn't either). Convince a friend crazy enough to go with you! Ghost hunting alone can be rather creepy and the reassurance of a friend can make the experience, 1) more fun, and 2) less scary. Don't be afraid to play a practical joke or two while you're at it. 
 
 Ghost hunting is a skill and a hobby. Grab a flashlight and a friend and hit that road looking for those who have not passed on to the afterlife! And don't let that creepy face in the window end with the curiosity about ghosts. Go looking for them, build your skillset, and have fun! 
+
+### FAQ's
+
+Q) How do you find an EMF detector?
+A) Search around. Some ghost hunting websites sell EMF's, or you can go to Amazon or Ebay. If all else fails, make your own with [these easy steps](https://sciencing.com/build-emf-detector-8491207.html)
+
+Q) How can you put a spirit/ghost to rest?
+A) The most common attempt to put a spirit/ghost to rest is to dig up its bones and salt and burn them. This is easily done with a shovel, headlights, and a lot of time. 
+
+Q) How can you trap a ghost if you so desire?
+A) There are a lot of different methods. 
