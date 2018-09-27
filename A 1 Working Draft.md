@@ -52,3 +52,6 @@ There are even more, but these are 3 that are kind of cool! Put into Google sear
 
 Q) Is it possible to be possessed by a ghost?
 A) It is rare, but it is possible. There are very few reported cases of possible ghost possessions. If you become a hardcore ghost hunter and are worried about being possessed, get this tattoo on your chest. It is an anti-possession symbol and will prevent any ghosts or other spirits from possessing you. 
+
+![Anti-Possession Symbol](https://github.com/abbyfincher/Class-Assignments/blob/master/flat%2C550x550%2C075%2Cf.u3.jpg)
+
