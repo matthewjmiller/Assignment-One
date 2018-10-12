@@ -1,6 +1,8 @@
 # Ghost Hunting For The Beginner
 
-## A step by step guide of how to begin ghost hunting
+## A step by step guide on how to begin ghost hunting
+
+{>> MM: I'll use this format to insert my comments. Use of the subhead is good, but since you are using that format, I would have taken the opportunity to write the level 1 title as something more intriguing or playful. As it is, the title and subhead repeat information and so don't maximize their effectiveness. <<}
 
 *By Abby Fincher*
 
@@ -8,19 +10,22 @@ Ghost hunting can be a great hobby to get into! Ghost hunting can seem intimidat
 
 This short how-to is for the beginning ghost hunter, those just starting out and wanting to learn the basics before going on their first hunt. Beginning the art of ghost hunting is no small feat. It takes a lot of practice to get to the level of the professionals you see on TV, but with a little patience, you can rise to the professional level before you know it! In this how-to, we will cover what you will need, how to choose a location, why observations on ghost hunts are important, and why having fun is important while on a ghost hunt! 
 
+{>> MM: Good structure to the introduction, answering "so what" and outlining what you'll cover. On the level of prose, I would recommend scaling back the use of exclamation marks, which can make it feel like you're trying too hard. <<}
+
 ### Step 1: Preparation
 
 Preparation is key in any situation, but it is especially important when one wishes to pursue the hobby of hunting ghosts or observing paranormal activity. You never know what could happen. The following items may be helpful in your first and future ghost hunts:
+
 1) Camera 
 2) Tape recorder
-3) Pen and Paper
+3) Pen and paper
 4) Laptop
-5) First Aid Kit
-6) Cell Phone
+5) First aid kit
+6) Cell phone
 7) Something to tell temperature
 
-Bringing a camera will help you capture images of ghosts in photographs or video recordings. It is always interesting to see what you've "caught" when scrolling through the images at a later date or even later that day. A tape recorder could capture ghostly voices that may be impercetible to the human ear. Participating in a Q and A session with your potential ghost can reveal some awesome information. First, it lets you know if you have actually encountered a ghost. Second, asking questions helps you "get to know" the ghost that is in the room with you. This could help you know its name and possibly what its life was like when it was a human. Ghostly voices are sometimes difficult to decipher, but with some practice and training, you could be one of the experts in no time!
-Bringing a first aid kit is important, especially if searching through warn down buildings that have rusty nails and possible trip hazards. Any cut big enough to warrant immmediate care can be primarily treated with a first aid kit, but if that cut is more of a gash, that cell phone is important. It can help you call 911 in an emergency or a friend if you need a quick getaway and your car will not start because of that vengeful spirit possessing the engine. 
+Bringing a camera will help you capture images of ghosts in photographs or video recordings. It is always interesting to see what you've "caught" when scrolling through the images at a later date or even later that day. A tape recorder could capture ghostly voices that may be imperceptible to the human ear. Participating in a Q and A session with your potential ghost can reveal some awesome information. First, it lets you know if you have actually encountered a ghost. Second, asking questions helps you "get to know" the ghost that is in the room with you. This could help you know its name and possibly what its life was like when it was a human. Ghostly voices are sometimes difficult to decipher, but with some practice and training, you could be one of the experts in no time! Bringing a first aid kit is important, especially if searching through warn down buildings that have rusty nails and possible trip hazards. Any cut big enough to warrant immmediate care can be primarily treated with a first aid kit, but if that cut is more of a gash, that cell phone is important. It can help you call 911 in an emergency or a friend if you need a quick getaway and your car will not start because of a vengeful spirit possessing the engine. 
+
 We will discuss the thermometer, pen and paper, and use of a laptop in a later section.
 
 ### Step 2: Where To?
@@ -34,9 +39,11 @@ There are certain meters ghost hunters use to help detect and observe ghosts. Th
 The temperature around you is a great indicator of whether there is a ghost nearby. If there is a drop in air temperature, a ghost could potentially be using the heat energy from the room to try and materiaize (or manifest). This often leaves a cold spot and can indicate if a spirit is present. Carrying a digital thermometer could be incredibly helpful in determining the presence of a ghost. Using an EMF reader and thermometer together is a killer combination in searching for your ghost. 
 Observations, knowing what you've seen, heard, and felt via cold zones helps you in expectations for future hunts and future encounters. 
 
+{>> MM: This paragraph could have been divided up to make the section clearer. <<}
+
 ### Step 4: Have Fun!
 
-Don't want to go alone? (I wouldn't either). Convince a friend crazy enough to go with you! Ghost hunting alone can be rather creepy and the reassurance of a friend can make the experience, 1) more fun, and 2) less scary. Don't be afraid to play a practical joke or two while you're at it. And let us not forget that all to wonderful adrenaline rush of chasing something that scares you more than you scare it!
+Don't want to go alone? (I wouldn't either). Convince a friend crazy enough to go with you! Ghost hunting alone can be rather creepy and the reassurance of a friend can make the experience, 1) more fun, and 2) less scary. Don't be afraid to play a practical joke or two while you're at it. And let us not forget that all too wonderful adrenaline rush of chasing something that scares you more than you scare it!
 
 Ghost hunting is a skill and a hobby. Grab a flashlight and a friend and hit that road looking for those who have not passed on to the afterlife! And don't let that creepy face in the window end with the curiosity about ghosts. Go looking for them, build your skillset, and have fun! 
 
@@ -44,7 +51,7 @@ Ghost hunting is a skill and a hobby. Grab a flashlight and a friend and hit tha
 
 Q) How do you find an EMF detector?
 
-A) Search around. Some ghost hunting websites sell EMF's, or you can go to Amazon or Ebay. If all else fails, make your own with [these easy steps](https://sciencing.com/build-emf-detector-8491207.html)
+A) Search around. Some ghost hunting websites {>> MM: Links? <<} sell EMFs, or you can go to Amazon or Ebay. If all else fails, make your own with [these easy steps](https://sciencing.com/build-emf-detector-8491207.html)
 
 Q) How can you put a spirit/ghost to rest?
 
